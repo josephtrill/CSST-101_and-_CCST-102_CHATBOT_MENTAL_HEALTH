@@ -2,6 +2,8 @@
 ## Here the video presentation
 https://drive.google.com/file/d/1WGrKpijhEdKkuEStzBGzfjhux7EK0CyH/view?usp=drive_link
 
+# About the weekly Report is to follow up sir, finishing lang po sa docs sir 
+
 ## here the picture of conversation to our menatal health chatbot
 
 ![Screenshot 2025-01-06 145733](https://github.com/user-attachments/assets/8b611d47-81d1-4b64-b10a-312b4c48ae0f)
