@@ -13,8 +13,6 @@ https://drive.google.com/file/d/1WGrKpijhEdKkuEStzBGzfjhux7EK0CyH/view?usp=drive
 ![Screenshot 2025-01-06 144726](https://github.com/user-attachments/assets/9e99505c-30e2-4954-b013-19eac06eb610)
 
 
-![Screenshot 2025-01-06 124616](https://github.com/user-attachments/assets/1901df93-a1a2-49e4-be1a-7e74c9f07528)
-
 
 
 
